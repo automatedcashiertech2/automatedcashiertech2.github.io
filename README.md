@@ -1,0 +1,1 @@
+# automatedcashiertech2.github.io
